@@ -3,3 +3,5 @@ My name is Benjamin Chait-Walter, and I am a student in the BA/MA program. As an
 
 Emmanuel is a second-year graduate student at Brandeis University studying sustainable international development. 
 Ben Rogak is a second-year graduate student at Brandeis University pursuing an MBA.
+
+My name is Emmanuel M. Coleman, a second year graduate student, studying Sustainable International Development, at Brandeis University. 
